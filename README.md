@@ -12,7 +12,7 @@
 
 <p align="center">
 <a href="https://github.com/VajiraTech">
-    <img src="https://telegra.ph/file/03f1eccdcb525a5e1a6ad.jpg"  width="700px">
+    <img src="https://telegra.ph/file/320320577b88760c89210.jpg"  width="700px">
 </a>
 <hr>
 
@@ -22,17 +22,17 @@
 
 ## Bot deploy in whatsapp biussness then not banned
 
-## Pairing code not works request this number https://wa.me/94719199757
+## Pairing code not works request this number https://wa.me/923037484167
 
 <b><details><summary>𝗦𝗢𝗖𝗜𝗔𝗟 𝗧𝗬𝗣𝗘𝗦</summary><br>
 
 ## CONTACT OWNER
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://wa.me/94719199757)
+[![vajira](https://telegra.ph/file/320320577b88760c89210.jpg)](https://wa.me/923037484167)
 
 ## JOIN SUPPORT GROUP
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://chat.whatsapp.com/D6w6Qy5yrhp7MmfNcprbO3)
+[![vajira](https://telegra.ph/file/320320577b88760c89210.jpg)](https://chat.whatsapp.com/BYPmVV6MPeUBH9b7o1BcUp)
 
 ## MY YT CHANNEL
 
@@ -73,7 +73,7 @@
 ## HELPERS
 [![USHANI](https://telegra.ph/file/1cacb07896ee14aa5920b.jpg?size=80)](https://github.com/vajirabot1) | [![SAVIYA](https://telegra.ph/file/1046fee52c7a14d556793.jpg?size=100)](https://github.com/VajiraTech) | [![TIMASH](https://telegra.ph/file/5e0bf1e4f7230ffe9cc37.jpg?size=109)](https://github.com/VajiraTech) | [![DANIDU](https://telegra.ph/file/4f43cf774e634e40129e5.jpg?size=80)](https://github.com/VajiraTech) | [![VIHANGA](https://telegra.ph/file/3b6537eb342b32de56558.jpg?size=80)](https://github.com/vihangayt0)
 ----|----|----|----|----
-[USHANI](https://wa.me/94767898887) | [SAVIYA](https://wa.me/+94757309293) | [TAMISHA](https://wa.me/94715264791) | [DANIDU](https://wa.me/94715322008) | [VIHANGA](https://wa.me/94762898541)
+[USHANI](https://wa.me/923112657705) | [SAVIYA](https://wa.me/+923112657705) | [TAMISHA](https://wa.me/923037484167) | [DANIDU](https://wa.me/923037484167) | [VIHANGA](https://wa.me/923037484167)
 Voice helper  | Developer, Bug Fixes, Modules |Developer,Bug Fixes,Base, Modules, | Modules, Idea | Modules
 
 <hr>
